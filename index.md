@@ -1,2 +1,2 @@
-## Welcome to GitHub Pages
+## Welcome to Parth's Github Page 
 Parth Joshi
